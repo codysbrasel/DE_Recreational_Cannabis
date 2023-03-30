@@ -13,4 +13,4 @@ Germans overall support legalization with bundeslands ranging from 47-82% in fav
 
 Finally, the top features that Germany wants to see in a legal recreational market, those features with greater than 50% in support are:  sales to 18+ only, using tax revenue to fund cannabis education and drug treatment, advertising ban, plain packaging with health warnings, restrictions on smoking or consuming in outdoor public places, limits on potency of products, and the sale of cannabis products through government regulated stores.
 ## Acknowledgement
-Thank you to Hannaway Associates for providing the data and for the great work they did with First Wednesdays in their report "Recreational Europe" found here https://firstwednesdays.eu/recreationaleurope
+Thank you to Hanway Associates for providing the data and for the great work they did with First Wednesdays in their report "Recreational Europe" found here https://firstwednesdays.eu/recreationaleurope
